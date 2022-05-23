@@ -67,3 +67,5 @@ Ao longo da década, os quadrinhos passaram por importantes transformações. Br
 Já em minisséries especiais, as primeiras aventuras do personagem foram revisitadas em Longo Dia das Bruxas e Vitória Sombria.
 
 Por fim, nos cinemas, Christopher Nolan deu um novo fôlego ao Homem-Morcego. Sua trilogia começou com Batman Begins, em 2005, e continuou com Batman – O Cavaleiro das Trevas e Batman – O Cavaleiro das Trevas Ressurge. Na mesma época, os games também ganharam sua própria versão do herói, com Arkham Asylum e Arkahm City.
+
+Fonte: [https://segredosdomundo.r7.com/batman-historia/]
